@@ -1,2 +1,0 @@
-# ITTalents
-Homework&amp;Stuff
